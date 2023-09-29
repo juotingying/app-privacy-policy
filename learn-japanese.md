@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-The 日文特訓 app is an Ad Supported app. This SERVICE is intended for use as is.
+The 日文祕笈 app is an Ad Supported app. This SERVICE is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information.
 
